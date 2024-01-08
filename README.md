@@ -1,4 +1,5 @@
 ### Hi there 👋
+Helloo I'm Vidushi Gandhi , I'm an introvert person who loves to spend time by reading books and solving maths problem
 
 <!--
 **VGiktara27/VGiktara27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
